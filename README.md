@@ -1,1 +1,1 @@
-Family.Friends.Travel.Coding. Leading @Microsoft @VisualStudio Editor team. Opinions are solely mine.
+Family.Friends.Travel.Coding. Now at FabricIQ team. Opinions are solely mine.
